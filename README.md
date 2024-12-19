@@ -12,5 +12,5 @@
 
 #### Find me 👀
 
-* Discord: `aikoonee`
-* Instagram: `aiko__ny`
+* Discord: [aikoonee](https://discord.com/users/1165609918326382656)
+* Instagram: [aiko__ny](https://www.instagram.com/aiko__ny/)
