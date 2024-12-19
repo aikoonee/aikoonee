@@ -13,4 +13,4 @@
 #### Find me 👀
 
 * Discord: `aikoonee`
-* Instagram: `aiko_ny`
+* Instagram: `aiko__ny`
